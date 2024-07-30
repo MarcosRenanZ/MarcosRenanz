@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tenho 22 anos, sou estudante de Front-end, estou procurando melhorar minhas habilidades, e adquirir mais conhecimento!
+I'm 22 years old, I'm a Front-end student, I'm looking to improve my skills and acquire more knowledge!
 
 
 ## 🌐 Socials:
