@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🤵🏻 About Me:
 I'm a Front-end student, I'm looking to improve my skills and acquire more knowledge!
 
 
